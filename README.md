@@ -13,13 +13,15 @@ Click this link to go to tour: https://poly.google.com/u/1/view/4-RegHasujt
 Click this link to go to tour: https://poly.google.com/u/1/view/c6CU-83Kv5G
 
 
+
+
 #### Other Work in process tours:
 
-#### Delaware Water Gap
+#### Tour 3. Delaware Water Gap
 Click this link to go to tour: https://poly.google.com/view/4kpRj9vkmsc
 
-#### Famous Bridges
+#### Tour 4. Famous Bridges
 Click this link to go to tour: https://poly.google.com/view/8vhRU5nsKmZ
 
-#### Aerial Tour of Lafayette College
+#### Tour 5. Aerial Tour of Lafayette College
 Click this link to go to tour: https://poly.google.com/view/a8D9CchJt-g
